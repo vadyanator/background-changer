@@ -1,1 +1,1 @@
-# https://vadyanator.github.io/background-changer/
+# https://vsuslov29.github.io/background-changer/
